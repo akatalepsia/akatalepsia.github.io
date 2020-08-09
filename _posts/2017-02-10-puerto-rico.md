@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Five Days in Puerto Rico
+title: Our Week in Puerto Rico
 image: '/images/posts/2017/2017-02/DSC_5407.jpg'
 ---
 
@@ -24,7 +24,7 @@ The colors found throughout the neighboring streets were incredibly vivid.
 
 We then checked out Paseo de La Princesa, which was bustling with street vendors selling snacks, trinkets, art, and the like. We followed the path skirting the city wall, stopped at Raices Fountain, and curved our way around the island to La Puerta de San Juan --- the gate to the city. Of course, we had Pokémon Go out to check which Pokémon the island had to offer...
 
-We reentered the city through the gate and to [Punto de Vista](https://www.yelp.com/biz/punto-de-vista-san-juan-5), a restaurant with a dramatic rooftop view, to meet up with some friends for dinner. Through a combination of planning and luck, we all decided to visit the same destination for break! And we weren't the only ones at this fairly small restaurant; we ran into another handful of classmates --- also seniors and probably also very happy to get away from the cold winter of the East Coast. I had my first (virgin) piña colada, an experience that left me ordering piña coladas as often as I could for the rest of the trip.
+We reentered the city through the gate and walked to [Punto de Vista](https://www.yelp.com/biz/punto-de-vista-san-juan-5), a restaurant with a dramatic rooftop view, to meet up with some friends for dinner. Through a combination of planning and luck, we all decided to visit the same destination for break! And we weren't the only ones at this fairly small restaurant; we ran into another handful of classmates --- also seniors and probably also very happy to get away from the cold winter of the East Coast. I had my first (virgin) piña colada, an experience that left me ordering piña coladas as often as I could for the rest of the trip.
 
 ![post](/images/posts/2017/2017-01/DSC_4926.jpg)
 
@@ -34,7 +34,7 @@ We reentered the city through the gate and to [Punto de Vista](https://www.yelp.
 
 ---
 
-The next morning, we boarded a ferry from the Fajardo terminal to the smaller island of Vieques, an hour and a half away. Vieques has a diverse array of beaches --- we stopped by the black sand beach, Sun Bay, and Media Luna.
+The next morning, we boarded a ferry from the Fajardo terminal to the smaller island of Vieques, an hour and a half away. Vieques has a diverse array of beaches --- we stopped by Black Sand, Sun Bay, and Media Luna.
 
 ![post](/images/posts/2017/2017-01/DSC_5088.jpg)
 
@@ -44,9 +44,11 @@ The next morning, we boarded a ferry from the Fajardo terminal to the smaller is
 
 ![post](/images/posts/2017/2017-01/DSC_5146.jpg)
 
-To get to the black sand beach, we took a 15 minute hike from our dropoff point. On the way back, we spotted this guy perching. He was kind enough to stay put through a round of photographs!
+To get to the Black Sand beach, we took a 15 minute hike from our dropoff point. On the way back, we spotted this guy perching. He was kind enough to stay put through a round of photographs!
 
 ![post](/images/posts/2017/2017-01/DSC_5152.jpg)
+
+![post](/images/posts/2017/2017-01/DSC_5176.jpg)
 
 ![post](/images/posts/2017/2017-01/DSC_5187.jpg)
 
@@ -54,7 +56,7 @@ To get to the black sand beach, we took a 15 minute hike from our dropoff point.
 
 ![post](/images/posts/2017/2017-01/DSC_5223.jpg)
 
-That evening, we went on a guided bioluminescence bay tour. I highly recommend the experience, and our friends also had a great time! The kayaks were completely transparent, allowing us to gape at the dazzling streaks of light beneath us. The tour guide also pointed out each constellation visible in the night sky, which we could see fairly well considering the light pollution coming from the neighboring main island. After the tour, we headed to our place in Vieques for the night.
+That evening, we went on a guided bioluminescence bay tour. I highly recommend the experience, and our friends also had a great time! The kayaks were completely transparent, allowing us to gape at the dazzling streaks of light beneath us. The tour guide also pointed out each constellation visible in the night sky, which we could see fairly well, considering the light pollution coming from the neighboring main island. After the tour, we headed to our place in Vieques for the night.
 
 ---
 
@@ -104,7 +106,9 @@ Next up was a visit to Castillo San Felipe del Morro (or simply "El Morro"), a f
 
 ![post](/images/posts/2017/2017-02/DSC_5447.jpg)
 
-Our final dinner in Puerto Rico was at [Perla](https://www.yelp.com/biz/perla-san-juan), probably the most beautiful building housing a restaurant that I’ve seen. Everything about the place was stunning, from the aqua-tinged shell walls to our seats overlooking a large stretch of ocean and beach.
+---
+
+Our last couple days were relaxed --- filled with strolls along the beach and around Condado, food, and sun. Our final dinner in Puerto Rico was at [Perla](https://www.yelp.com/biz/perla-san-juan), probably the most beautiful building housing a restaurant that I’ve seen. Everything about the place was stunning, from the aqua-tinged shell walls to our seats overlooking a large stretch of ocean and beach.
 
 ![post](/images/posts/2017/2017-02/DSC_5505.jpg)
 

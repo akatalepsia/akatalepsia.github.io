@@ -26,7 +26,7 @@ image: /images/posts/2017/2017-05/DSC_7109.jpg
 
 ![post](/images/posts/2017/2017-05/DSC_7094.jpg)
 
-![post](/images/posts/2017/2017-05/DSC_7109.jpg#full)
+![post](/images/posts/2017/2017-05/DSC_7109.jpg)
 
 ---
 
@@ -40,15 +40,15 @@ image: /images/posts/2017/2017-05/DSC_7109.jpg
 
 ![post](/images/posts/2017/2017-05/DSC_7144.jpg)
 
-![post](/images/posts/2017/2017-05/DSC_7160.jpg#full)
+![post](/images/posts/2017/2017-05/DSC_7160.jpg)
 
-![post](/images/posts/2017/2017-05/DSC_7163.jpg#full)
+![post](/images/posts/2017/2017-05/DSC_7163.jpg)
 
 ![post](/images/posts/2017/2017-05/DSC_7176.jpg)
 
 ![post](/images/posts/2017/2017-05/DSC_7188.jpg)
 
-![post](/images/posts/2017/2017-05/DSC_7198.jpg#full)
+![post](/images/posts/2017/2017-05/DSC_7198.jpg)
 
 ![post](/images/posts/2017/2017-05/DSC_7201.jpg)
 
@@ -56,7 +56,7 @@ image: /images/posts/2017/2017-05/DSC_7109.jpg
 
 ![post](/images/posts/2017/2017-05/DSC_7224.jpg)
 
-![post](/images/posts/2017/2017-05/DSC_7245.jpg#full)
+![post](/images/posts/2017/2017-05/DSC_7245.jpg)
 
 ---
 

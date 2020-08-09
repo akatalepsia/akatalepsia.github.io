@@ -43,6 +43,16 @@ Old Delhi butter chicken
 
 ---
 
+#### [De Maria (Nolita, NYC)](https://www.yelp.com/biz/de-maria-new-york)
+
+![post](/images/posts/2017/2017-03/DSC_5630.jpg)
+Fire Dragon Bowl
+
+![post](/images/posts/2017/2017-03/DSC_5631.jpg)
+Chocolate-Chestnut Waffle
+
+---
+
 #### [Morgenstern's Finest Ice Cream (Lower East Side, NYC)](https://www.yelp.com/biz/morgensterns-finest-ice-cream-new-york-2)
 
 ![post](/images/posts/2017/2017-03/DSC_5647.jpg)
@@ -54,7 +64,7 @@ New God Flow --- caramelized honey, Japanese white bread, melting raw milk
 
 #### [ABC Cocina (Flatiron, NYC)](https://www.yelp.com/biz/abc-cocina-new-york)
 
-![post](/images/posts/2017/2017-03/DSC_5660.jpg#full)
+![post](/images/posts/2017/2017-03/DSC_5660.jpg)
 
 ![post](/images/posts/2017/2017-03/DSC_5667.jpg)
 Apple and celery root salad with cumin(!) yogurt --- bursting with fresh flavor
@@ -92,7 +102,7 @@ Fried chicken
 
 ---
 
-#### [Clover Food Lab](https://www.yelp.com/biz/clover-food-lab-cambridge-12)
+#### [Clover Food Lab (Cambridge, MA)](https://www.yelp.com/biz/clover-food-lab-cambridge-12)
 
 ![post](/images/posts/2017/2017-03/DSC_5920.jpg)
 Breakfast sandwich

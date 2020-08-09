@@ -4,13 +4,15 @@ title: Arrival of Spring
 image: '/images/posts/2017/2017-04/DSC_6097.jpg'
 ---
 
+---
+
 #### Coney Island
 
-![post](/images/posts/2017/2017-04/DSC_5967.jpg#full)
+![post](/images/posts/2017/2017-04/DSC_5967.jpg)
 
 ![post](/images/posts/2017/2017-04/DSC_5963.jpg)
 
-![post](/images/posts/2017/2017-04/DSC_5997.jpg#full)
+![post](/images/posts/2017/2017-04/DSC_5997.jpg)
 
 ---
 
