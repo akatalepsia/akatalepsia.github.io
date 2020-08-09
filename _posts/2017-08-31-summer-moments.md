@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Summer Moments
-image: '/images/posts/2017/2017-06/DSC_8340.jpg'
+image: '/images/posts/2017/2017-07/DSC_8340.jpg'
 ---
 
 I realized that most my pictures concern food --- not going to lie, that was definitely a big factor in why I moved to NYC after graduating.
