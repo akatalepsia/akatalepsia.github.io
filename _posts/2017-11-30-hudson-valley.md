@@ -4,8 +4,6 @@ title: Thanksgiving Weekend in Hudson Valley
 image: '/images/posts/2017/2017-11/DSC_8957.jpg'
 ---
 
-Summer has come to an end, but I do love what fall has to offer. Something in the air never fails to induce nostalgia every time this year --- perhaps since September has marked so many new beginnings. I used to anticipate seeing the first frost emerge on our lawn where I grew up --- now that I've moved to NYC, I'll be on the lookout for new markers.
-
 ---
 
 #### Thanksgiving Feast
@@ -58,15 +56,21 @@ Summer has come to an end, but I do love what fall has to offer. Something in th
 
 ---
 
-#### [Storm King Art Center](https://stormking.org/)
-
 ![post](/images/posts/2017/2017-11/DSC_9116.jpg)
 
 ![post](/images/posts/2017/2017-11/DSC_9133.jpg)
 
+---
+
+#### [Hudson Hil's Market & Cafe](https://www.hudsonhils.com/)
+
 ![post](/images/posts/2017/2017-11/DSC_9191.jpg)
 
 ![post](/images/posts/2017/2017-11/DSC_9194.jpg)
+
+---
+
+#### [Storm King Art Center](https://stormking.org/)
 
 ![post](/images/posts/2017/2017-11/DSC_9218.jpg)
 
@@ -108,7 +112,7 @@ Summer has come to an end, but I do love what fall has to offer. Something in th
 
 ---
 
-#### [The Kitchen Sink](https://thekitchensinknyc.com/) in Beacon
+#### [The Kitchen Sink](http://www.kitchensinkny.com/) in Beacon
 
 ![post](/images/posts/2017/2017-11/DSC_9411.jpg)
 
