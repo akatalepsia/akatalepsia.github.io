@@ -36,11 +36,11 @@ Gotta burn off those calories with some shopping, right? Especially since the re
 
 ![post](/images/posts/2017/2017-07/DSC_8336.jpg)
 
-[Dominique Ansel Bakery](https://www.yelp.com/biz/dominique-ansel-bakery-new-york) has quickly become a favorite. I love seeing their interesting new creations!
+[Dominique Ansel Bakery](https://dominiqueanselny.com/) has quickly become a favorite. I love seeing their interesting new creations!
 
 ---
 
-#### Dinner at [Sakamai](https://www.yelp.com/biz/sakamai-new-york)
+#### Dinner at [Sakamai](https://sakamai.com/)
 
 ![post](/images/posts/2017/2017-07/DSC_8340.jpg)
 
@@ -73,4 +73,4 @@ Our building hosted a cooking demo!
 Views of Empire State from the rooftop
 
 ![post](/images/posts/2017/2017-08/DSC_8433.jpg)
-Lady M as an after-work treat
+[Lady M](https://www.ladym.com/) as an after-work treat

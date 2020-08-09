@@ -28,7 +28,7 @@ image: '/images/posts/2017/2017-04/DSC_6097.jpg'
 
 ---
 
-#### [Mediterra (Princeton, NJ)](https://www.yelp.com/biz/mediterra-restaurant-princeton)
+#### [Mediterra (Princeton, NJ)](https://www.mediterrarestaurant.com/)
 
 ![post](/images/posts/2017/2017-05/DSC_6150.jpg)
 Ricotta gnocchi --- loved the shape!

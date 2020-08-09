@@ -88,7 +88,7 @@ Our Airbnb was in Condado, very conveniently located near good eats, shops, and 
 
 ![post](/images/posts/2017/2017-02/DSC_5527.jpg)
 
-After trying out paddle boating in Condado Lagoon, we stopped for a late lunch at [Ola Ocean Front Bistro](https://www.yelp.com/biz/ola-ocean-front-bistro-san-juan).
+After trying out paddle boating in Condado Lagoon, we stopped for a late lunch at [Ola Ocean Front Bistro](https://www.condadovanderbilt.com/condado-ola-oceanfront).
 
 ![post](/images/posts/2017/2017-02/DSC_5362.jpg)
 
@@ -98,7 +98,7 @@ After trying out paddle boating in Condado Lagoon, we stopped for a late lunch a
 
 ![post](/images/posts/2017/2017-02/DSC_5407.jpg)
 
-Next up was a visit to Castillo San Felipe del Morro (or simply "El Morro"), a favorite of tourists and a beautiful place to catch the sunset as it is located at the westernmost point of San Juan. We rounded out the day with dinner at [Cocina Abierta](https://www.yelp.com/biz/cocina-abierta-san-juan).
+Next up was a visit to Castillo San Felipe del Morro (or simply "El Morro"), a favorite of tourists and a beautiful place to catch the sunset as it is located at the westernmost point of San Juan. We rounded out the day with dinner at [Cocina Abierta](https://cocinaabierta.net/).
 
 ![post](/images/posts/2017/2017-02/DSC_5385.jpg)
 
@@ -108,7 +108,7 @@ Next up was a visit to Castillo San Felipe del Morro (or simply "El Morro"), a f
 
 ---
 
-Our last couple days were relaxed --- filled with strolls along the beach and around Condado, food, and sun. Our final dinner in Puerto Rico was at [Perla](https://www.yelp.com/biz/perla-san-juan), probably the most beautiful building housing a restaurant that I’ve seen. Everything about the place was stunning, from the aqua-tinged shell walls to our seats overlooking a large stretch of ocean and beach.
+Our last couple days were relaxed --- filled with strolls along the beach and around Condado, food, and sun. Our final dinner in Puerto Rico was at [Perla](https://www.laconcharesort.com/meetings/perla/), probably the most beautiful building housing a restaurant that I’ve seen. Everything about the place was stunning, from the aqua-tinged shell walls to our seats overlooking a large stretch of ocean and beach.
 
 ![post](/images/posts/2017/2017-02/DSC_5505.jpg)
 
