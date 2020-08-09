@@ -17,7 +17,7 @@ Plant-based meal from [by CHLOE.](https://eatbychloe.com/)
 
 ---
 
-#### Brunch on Amsterdam Ave
+#### Brunch on Amsterdam Ave, near Columbia University
 
 I do love how different each neighborhood in NYC feels --- [Flat Top](https://www.yelp.com/biz/flat-top-new-york) felt like an oasis from where I usually spend my time.
 
@@ -39,33 +39,33 @@ Deconstructed latte at [Coffee Project](https://coffeeprojectny.com/)
 
 Freshly brewed tea at [Yaya Tea](https://yayatea.com/)
 
-![post](/images/posts/2017/2017-10/DSC_8658.jpg)
+![post](/images/posts/2017/2017-09/DSC_8658.jpg)
 
 ---
 
 #### [Raku](http://rakunyc.com/) - a shop dedicated to quality udon
 
-![post](/images/posts/2017/2017-10/DSC_8616.jpg)
+![post](/images/posts/2017/2017-09/DSC_8616.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8636.jpg)
+![post](/images/posts/2017/2017-09/DSC_8636.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8644.jpg)
+![post](/images/posts/2017/2017-09/DSC_8644.jpg)
 
 ---
 
 #### Seasonal offerings at [abcV](https://www.jean-georges.com/restaurants/united-states/new-york/abcv)
 
-![post](/images/posts/2017/2017-10/DSC_8708.jpg)
+![post](/images/posts/2017/2017-09/DSC_8708.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8680.jpg)
+![post](/images/posts/2017/2017-09/DSC_8680.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8689.jpg)
+![post](/images/posts/2017/2017-09/DSC_8689.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8699.jpg)
+![post](/images/posts/2017/2017-09/DSC_8699.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8702.jpg)
+![post](/images/posts/2017/2017-09/DSC_8702.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8707.jpg)
+![post](/images/posts/2017/2017-09/DSC_8707.jpg)
 
 ---
 
@@ -79,7 +79,7 @@ Freshly brewed tea at [Yaya Tea](https://yayatea.com/)
 
 ![post](/images/posts/2017/2017-10/DSC_8765.jpg)
 
-![post](/images/posts/2017/2017-10/DSC_8676.jpg)
+![post](/images/posts/2017/2017-09/DSC_8676.jpg)
 
 ![post](/images/posts/2017/2017-10/DSC_8713.jpg)
 Beautiful lighting at the Hell's Kitchen location of [Obao](https://www.obaony.com/)
